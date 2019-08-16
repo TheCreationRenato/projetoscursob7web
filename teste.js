@@ -1,6 +1,6 @@
 kjdbçcvkas
 çõlnasçdfnj
-õlpdnikç´~as
+õlpdnikç
 olçãsd
 ldn
 la
